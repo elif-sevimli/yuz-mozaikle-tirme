@@ -1,0 +1,1 @@
+# yuz-mozaikle-tirme
